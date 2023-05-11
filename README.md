@@ -1,0 +1,1 @@
+# TugasGPU_RizkyKharisma
